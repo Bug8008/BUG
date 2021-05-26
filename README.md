@@ -1,2 +1,3 @@
 # BUG
 Religin
+IF YOU SEE THIS THAN YOUR COOL :)
